@@ -1,0 +1,4 @@
+- 👋 Olá, eu sou o Lucas Ferrari 🤡
+- 📫 Como me encontrar: lucas.ferrari.oliveira@escola.pr.gov.br
+- 👉🏼 Atualmente eu estou aprendendo a usar sites de programação
+- 🤳🏼 @l.ferrarisccp
